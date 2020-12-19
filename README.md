@@ -1,1 +1,3 @@
 # vaje10, Me and my friend did this Vaje together!
+
+Covid-19 is making life hard...
